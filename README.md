@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @cotiletta
+- 👀 I’m interested in technology, plants, tattoo, music and FOOOOOOD
